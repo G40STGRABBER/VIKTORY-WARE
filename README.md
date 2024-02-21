@@ -1,1 +1,1 @@
-Join my discord to get updates! https://discord.gg/PUKgEzthrX
+Join my discord to get updates! https://discord.gg/VIKTORY
